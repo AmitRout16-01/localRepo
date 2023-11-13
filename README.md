@@ -1,3 +1,3 @@
 # Shiv hi Shakti hai.🙏🙏🙏.
 
-<p>Pranam Mahadev</p>
+<p>Pranam Mahadev(Pati)</p>
